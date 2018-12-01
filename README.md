@@ -3,4 +3,4 @@
 
 2018-11-30
 
-He is changing
+He has changed
